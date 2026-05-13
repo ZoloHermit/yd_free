@@ -2,4 +2,4 @@
 
 ----
 
-- 1 - 📺 [Crimson-Desert-is-Everything-Wrong-With-Modern-AAA-Games](https://github.com/ZoloHermit/yd_free/tree/main/videos/Crimson-Desert-is-Everything-Wrong-With-Modern-AAA-Games)
+- 1 - ▶️ [The-Odyssey-I-Got-A-Bad-Feeling-About-This-One...](https://github.com/ZoloHermit/yd_free/tree/main/videos/The-Odyssey-I-Got-A-Bad-Feeling-About-This-One...)
