@@ -2,4 +2,4 @@
 
 ----
 
-- 1 - 🎥 [Synthetic-Man's-YouTube-Rewind-2025-(Memory-Runner-Reup)](https://github.com/ZoloHermit/yd_free/tree/main/videos/Synthetic-Man%27s-YouTube-Rewind-2025-%28Memory-Runner-Reup%29)
+- 1 - 📺 [Crimson-Desert-is-Everything-Wrong-With-Modern-AAA-Games](https://github.com/ZoloHermit/yd_free/tree/main/videos/Crimson-Desert-is-Everything-Wrong-With-Modern-AAA-Games)
